@@ -1,2 +1,2 @@
-# logmsing.github.io
-oscar@gmail.com
+# looginetimid.github.io
+bla bla
